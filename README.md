@@ -17,10 +17,17 @@ Mrs. Harpreet Kaur madam (HOD of applied Science Department) then enlighten the 
 
 Dr Parminder Singh - He mentor us to have big dreams ,work hard and then we will be truly successfull in achieving our goals. 
 
-Mr.Ashok Singla (Finical Advisor) - He 
+Mr.Ashok Singla (Finical Advisor) - He vanished the stress of money by telling about 
 ## Day 2
 ### 1 August 2025
-Session conducted by Dr.Arshdeep Singh on Food 
+The wonderful day starts by  calling Buddy4study team to tell all the students about Satya Scholarship scheme and they gave their precious time to complete our registration.
+
+Harpreet Kaur grewal mam (HOD) gave full insight about the importance of scholarship and about college discipline, being a ragging free campus, attendance and many more things about campus. 
+
+Arshdeep Sir(Food department) Gave a vast knowledge about proper balanced diet, nutrition, myths, reality of packaged food items and health as our ultimate wealth. As health is top most priority of a person so session provides a lot of information about how we can improve our eating habits. 
+
+The Causmic club gave knowledge about GitHub, helped in registration and the induction program's importance.
+
 ## Day 3
 ### 2 August 2025
 It's
