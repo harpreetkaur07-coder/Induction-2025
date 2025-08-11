@@ -17,7 +17,14 @@ Mrs. Harpreet Kaur madam (HOD of applied Science Department) then enlighten the 
 
 Dr Parminder Singh - He mentor us to have big dreams ,work hard and then we will be truly successfull in achieving our goals. 
 
-Mr.Ashok Singla (Finical Advisor) - He vanished the stress of money by telling about 
+Mr.Ashok Singla (Finical Advisor) - He vanished the stress of money by telling about Vidya Laxmi scheme provides education loan up-to 4 lakh.  He also explains about  how to apply for loan and what are cretiras to get loan.  Its very helpful session which gives strength to economically weak students to study without taking much stress about finances. 
+
+Dr. Rakesh Kumar (1991 batch) , ADC of Ludhiana address students and motivats to work hard these four years. He also share his own wonderful experience in this collage. 
+
+Then all CS students were taken to visit Computer Science Department were we will be going to spend our upcoming years. There we explore different class rooms and well equipped labs. 
+
+I feel blessed to be the part of GNDEC family where brains are sharped and provide a route to achieve our goals and be successful in our life.  Here we gets wonderful opportunity to create new ideas and innovations.
+
 ## Day 2
 ### 1 August 2025
 The wonderful day starts by  calling Buddy4study team to tell all the students about Satya Scholarship scheme and they gave their precious time to complete our registration.
@@ -30,7 +37,9 @@ The Causmic club gave knowledge about GitHub, helped in registration and the ind
 
 ## Day 3
 ### 2 August 2025
-It's
+It's a new day with new excitment of learning new experience and collecting knowledge.
+
+Dr. Jaswinder Singh sir 
 
 ## Day 4
 ### 4 August 2025
@@ -42,7 +51,7 @@ After it the caumic club  members explain the students about the club and how to
 ### 6 August 2025
 CSE and IT students were assembled in audition. The trusty of Nankana Sahib Education trust Mr Grewal Sir address the Student and have conversation with the student. He also shared his inspiring journey and motivate student towards dedicated life goals. He appricate the student for making the best decision of joining GNDEC as it's not a college  for rich  but a institution which enlift the minority community and rural area students. His way of motivation fills a new energy among children.
 
-After it Dr Lakhvir Singh (I charge of CML) introduce students about CML and way to join CML. He also Swayam ,nptel platform  and takes up to the benefits and how to enroll for it. It was so knowledgeable session with sir exploring about best platform for learning and exploring new courses from IIT's and well established institutes. 
+After it Dr Lakhvir Singh (I charge of CML) introduce students about CML and way to join CML. He also Swayam ,nptel platform  and takes up to the benefits and how to enroll for it. It was so knowledgeable session with sir exploring about best platform for learning and exploring new courses from IIT's and well established institutes. Sir also explains about CML organization how it provides support system to students and helped them in their studies by organising  workshops and small  couses .
 
 There are wonderful and knowledgeable sessions conduct in campus. 
 ## Day 6
