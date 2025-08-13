@@ -39,7 +39,9 @@ The Causmic club gave knowledge about GitHub, helped in registration and the ind
 ### 2 August 2025
 It's a new day with new excitment of learning new experience and collecting knowledge.
 
-Dr. Jaswinder Singh sir 
+Dr. Jaswinder Singh sir (National Awardee lecturer)Sir focus on learning miute things and understanding basics of every topic also emphasizes on applying our concepts in daily life . Sir focus on learning rather than studying. We all must need to be focus and set our high aims. Sir explain how our whole study is similar to mathematics that it can be applied practically to daily life. I get to know real meaning of meditation and God and much more... 
+##### Lecture On Real Aspiration
+Next lecture was given by Miss Priya Darshani mam. She taught about ultimate goal Happiness and prosperity in continuity! Our efforts are in wrong direction which is increasing the gap of our real aspiration. We need to focus on goal and then choose the right steps. We need to identify our capacity and how much is required in order to stop the exploitation of nature and surroundings! Right Understanding needs to be enculcated which will definitely paves the way for healthy relationships and physical facilities!
 
 ## Day 4
 ### 4 August 2025
@@ -62,3 +64,6 @@ Dr. Amit Kamra then enlight the stage of auditorium with his digital marketing p
 
 As Exam is one of the important part  of education curriculum so Dr. Randiv Sir illustrate students about the exam pattern and marks distribution. He also explain students about guru.gndec.... website run by GNDEC. 
 
+It's amazing program conducted by college with help in exploring and understanding college criculum. Very helpful in providing us with basic knowledge about the facilities of college.  These are very knowledgeable and interesting session and also act as a linking path way between our school and college life.
+
+Thank You
